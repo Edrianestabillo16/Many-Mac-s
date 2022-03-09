@@ -1,2 +1,2 @@
-# Many-Mac-s
+# Mang-Mac-s
 Website
